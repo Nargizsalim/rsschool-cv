@@ -3,7 +3,7 @@
 ## My Contact Info:
 * __E-mail__: nargiz.salimova@gmail.com
 * **GitHub**: Nargizsalim
-* **[LinkedIn](www.linkedin.com/in/nargiz-salimova-47165a212)
+* [LinkedIn](www.linkedin.com/in/nargiz-salimova-47165a212)
 ---
 ## About Me
 I have 8 years of experience in finance and banking. This course will offer me a career change.
