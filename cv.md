@@ -1,7 +1,7 @@
 # Nargiz Salimova
 ---
 ## My Contact Info:
-* **E-mail**: nargiz.salimova@gmail.com
+* __E-mail__: nargiz.salimova@gmail.com
 * **GitHub**: Nargizsalim
 ---
 ## About Me
